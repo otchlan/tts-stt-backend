@@ -1,0 +1,1 @@
+- [ ] NOTATKA - to jest kolejny tekst tego co się dzieje hasztag praca nie wiem no nie wiem
